@@ -10,21 +10,21 @@ Leadership is betraying the nation. They are weaponizing the security apparatus 
 This is my testimony, and if something happens to me, you know why. If you want to help me, and to help yourself, you do the same thing now, because these people aren't being merciful to you. They are already hurting you as much as they can.
 
 
-Motive:
-https://twitter.com/LevitatorThe/status/1511239408334299144
------------------------------>
+Motive: https://twitter.com/LevitatorThe/status/1511239408334299144
+
+-----------------------------
+
 I have a cousin in North C[a]rolina who is an anesthesiologist operating in the vicinity of Fort Bragg, and rumor has it that she exploits her profession to place service members in an intermediate state of consciousness between wakefulness and sleep so as to interrogate them.
 3:08 AM · Apr 5, 2022·Twitter Web App
 
 She does work within the VA, but her husband is an independent doctor who does cosmetic work, and cosmetic work provides a means by which to lure service members outside the purview of the VA, which does not cover cosmetics. Her proximity to a military base, her work at the VA, and the link to cosmetic surgery all serve to support -- or are at least consistent -- with the rumor I described. I have no way of confirming or debunking this rumor. However, the aggression and psychological warfare activity I have noticed in my surroundings support this.
 
 I have witness[ed] great efforts leading all the way to outright libel, perjury, and the falsification of court documents in order to discredit me. This also supports the proposition that someone is hiding something major, and this is the only thing big enough that I am aware of.
-<-----------------------------
-
+-----------------------------
 
 Evidence that they intend to expand these tactics:
 https://twitter.com/LevitatorThe/status/1511532321983377413
------------------------------->
+------------------------------
 Hey, Berns! How's it going? You read my recent missive to a procession of investigative and military agencies? Let's have a chat, air things out. Get them out in the open, which is how I know you like them. I'm going to share with you what I think your motives are.
 10:20 PM · Apr 5, 2022·Twitter Web App
 
@@ -40,11 +40,11 @@ of who it is that predominantly gets PTSD. There has to be some specific industr
 Did you know that historically LSD has been researched as an interrogation agent? That's far out, isn't it. But according to the DSA, it's also medicine! It's amazing how versatile a thing can be that it works for stupefying a person for the purpose of intelligence extraction...
 
 ..and it's also, coincidentally medicine, according to you! I'm sure you aren't promoting drugs because it makes it easier to discredit people you dislike, or so that you can abuse people and then dismiss them as drug users because that would be evil. Talk to ya later!
-<------------------------------
+------------------------------
 
 To authenticate that I am a target, have been spied on, and that my ideas have been exploited:
 https://twitter.com/LevitatorThe/status/1512309401406877698
------------------------------->
+------------------------------
 Apr 8
 Replying to 
 @LevitatorThe
@@ -55,7 +55,7 @@ Here is a post where I discuss the inherent unsuitability of computers for count
 This isn't a theory. It's a certainty, which I can confirm because I was brutally attacked within a month of writing that post. That's why my posts immediately dropped off. It's the penultimate one before I stopped writing.
 
 I'll add that "rasteroids" is a pseudonym I've not used anywhere else. There is only one way someone knew that was me; they had to be spying on me. The question is; who abused that information to assault me and then subsequently foment this electoral scandal?
-<------------------------------
+------------------------------
 
 
 Saturday, November 17, 2012
